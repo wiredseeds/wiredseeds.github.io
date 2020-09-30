@@ -1,1 +1,0 @@
-# wiredseeds.github.io
